@@ -1,1 +1,1 @@
-This is fun website made with my classmates:)
+This is fun a website made with my classmates:)
